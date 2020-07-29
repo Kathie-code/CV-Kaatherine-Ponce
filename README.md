@@ -1,2 +1,2 @@
-# CV-Kaatherine-Ponce
+# CV.Katherine-Ponce
 Resume 
