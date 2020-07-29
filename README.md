@@ -1,2 +1,0 @@
-# CV.Katherine-Ponce
-Resume 
